@@ -1,2 +1,0 @@
-# kadowakiyuma.github.io
-monmonのウェブサイト
